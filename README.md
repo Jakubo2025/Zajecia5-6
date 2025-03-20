@@ -1,0 +1,1 @@
+# Zajecia-5-Przem-wienia-Bidna-i-Trumpa
